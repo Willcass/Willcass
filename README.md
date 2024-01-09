@@ -1,0 +1,8 @@
+- 👋 Hi, I'm @Willcass
+- 👀 I am interested in creating a digital asset, promoting and managing this asset to a historic level.
+- 🌱 I'm currently learning and starting to study programming.
+- 💞️ I seek to collaborate in promoting liquidity for the movement of digital assets.
+- 📫 How to contact me: through GitHub, and then WhatsApp
+- 😄 Pronouns: I don't care about that
+- ⚡ Curiosity: I have been studying the financial market since 2015 without success
+- ⚡ Objective: Create new cultures, and promote my own digital asset with a limited amount of tokens.
